@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Lazy-Beear.github.io/rsschool-cv/cv
